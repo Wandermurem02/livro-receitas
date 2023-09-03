@@ -1,0 +1,42 @@
+﻿#  Pudim de leite condensado :cake: 
+
+
+
+## Ingredientes 
+
+
+
+> - 1 xícara de chá de açúcar
+>
+> - 1/2 (meia) xícara de chá de água
+>
+> - 3 ovos
+>
+> - 1lata de leite condensado (395g)
+>
+> - 1° 1/2 xícara de chá de leite (375ml)
+>
+> - 1/2 colher de sopa de Maisena
+
+
+
+## Modo de Preparo 
+
+
+
+###### 1. Disponha o açúcar e a água em uma fôrma de pudim grande (28 cm) e misture até o açúcar dissolver.
+
+###### 2.  Leve ao fogo baixo e deixe cozinhar, sem mexer, por 10 minutos, ou até o caramelo estar marrom. Retire do fogo e com o auxílio das costas de uma colher, espalhe o caramelo por toda a fôrma. Reserve.
+
+###### 3. Pre-aqueça o forno em temperatura média (180° C).
+
+###### 4.  No copo do liquidificar, coloque o leite condensado, o leite, os ovos e o amido de milho MAIZENA . Bata até obter uma mistura homogênea.
+
+###### 5.  Transfira a mistura à fôrma de pudim já caramelizada e cubra-a com papel-alumínio.
+
+###### 6.  Coloque a fôrma de pudim dentro de uma assadeira e leve ao forno em banho-maria, por 1 hora, ou até que o pudim esteja assado.
+
+###### 7.  Retire do forno, tire a fôrma de pudim de dentro da assadeira e deixe esfriar. Leve à geladeira, por no mínimo 2 horas.
+
+###### 8.  Depois de frio, desenforme sobre um prato e sirva em seguida.
+
